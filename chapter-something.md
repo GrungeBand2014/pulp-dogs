@@ -2,4 +2,4 @@ There's a sad truth going around that trains travel strictly on tracks and that'
 
 It's a damn shame that you don't exist because I'm in desperate want of some company. As long as no one's looking (let's face it they never are am I right eh?) and you don't mind (let's face it you never do am I right eh?) why don't we split an illusion you and I that you really do exist that you're a flesh blood corporeal honest-to-goodness extant entity. My goodness you look...ravishing. Take a seat why don't you.
 
-Oh I'm sorry I must have left my manners on the bus my name is it's a pleasure to meet you no no don't bother with your name I'm absolute garbage with names I'll just forget it you understand you understand.
+Oh I'm sorry I must have left my manners on the bus my name is it's a pleasure to meet you no no don't bother with your name I'm absolute garbage with names I'll just forget it you understand you understand. Could I interest you in a drink or uh something of that nature? There should still be some bottles around somewhere from the little shindig I had last night...Vodka? What's your policy on vodka? 
