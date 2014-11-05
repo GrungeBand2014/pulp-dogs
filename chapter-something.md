@@ -1,1 +1,2 @@
-a
+There's a sad truth going around that trains travel strictly on tracks and that's for damn sure. I don't know if that means anything to you or if that nonsense is just nonsense, you know, in one ear and out the other sayonara and so forth. Trains traveling strictly on tracks speaks to some sad, sad, sad state of the human condition that our ancestors got themselves into one afternoon and we're still mired, yet to wrench ourselves out of the muck. The best stories start with pseudo-sagely musings and this will be no exception. I'm a good friend to all things faux.
+
